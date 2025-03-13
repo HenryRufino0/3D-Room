@@ -1,12 +1,9 @@
 ROOM
 
 
-![image](https://github.com/user-attachments/assets/48717883-fadc-466b-850f-dabdc799b3f2)
+![image](https://github.com/user-attachments/assets/2c2b66c9-9e0a-40d0-bbbd-64e33016f826)
 
 
 
-![image](https://github.com/user-attachments/assets/e8c89c24-8a3a-4eaf-a3a9-44a95dec6af9)
 
-
-
-![image](https://github.com/user-attachments/assets/4596fb1e-6030-45cf-b732-b82afd51b482)
+![image](https://github.com/user-attachments/assets/53fd8fab-e28c-40a1-bd7c-83d8e0ce6729)
